@@ -1,6 +1,6 @@
 # 蛋仔云机场官网地址
 
-最新地址：[蛋仔云.space](https://egg1.v5555.website/#/register?code=aZXbVu4v)
+最新地址：[蛋仔云.space](https://www.5299egg.top/#/register?code=b7DAdJ4i)
 
 ## 蛋仔云介绍
 
